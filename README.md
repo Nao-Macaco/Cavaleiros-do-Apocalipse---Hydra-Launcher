@@ -12,7 +12,7 @@ Cavaleiros do Apocalipse:
 
 6- Tad, o conversador
 
-7- NerdsAttack, old school especialista em desinstalar programas
+7- NerdsAttack, old school especialista em desinstalar programas, pra entrar no discord dele tem que mandar print inscrito no canal do youtube
 
 8- Moratto, o cara da clarividência e da ofensiva
 
